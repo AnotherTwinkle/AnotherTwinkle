@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### I love all things related to computers <3
 <!--
 **AnotherTwinkle/AnotherTwinkle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
