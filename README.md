@@ -1,4 +1,5 @@
 ### I like the world <3
+**Find me on discord:** 810461031821737994
 <!--
 **AnotherTwinkle/AnotherTwinkle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
